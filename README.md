@@ -14,7 +14,7 @@
 🏢 *Job*: None <br>
 🎓 *Learning at*: Open University of Israel <br>
 📫 *How to reach me*: <br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [Email](maxily@protonmail.com)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [Email - maxily@protonmail.com]
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [Instagram](https://instagram.com/max_ily1)
 <br>
 
