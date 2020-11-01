@@ -15,6 +15,7 @@
 🎓 *Learning at*: Open University of Israel <br>
 🎉 *Participated in*: <br>
 * 🎉 Hacktoberfest 2020 (Completed all four required PRs in addition to three ineligible PRs) <br>
+
 📫 *How to reach me*: <br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [Email - maxily@protonmail.com]
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [Instagram](https://instagram.com/max_ily1)
